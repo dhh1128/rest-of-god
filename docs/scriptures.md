@@ -106,13 +106,116 @@ The Lord's presence is connected with receiving this rest. Moses was speaking wi
     </td>
 </tr>
 <tr>
-    <td>cite2link</td>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/ot/isa/11.10?lang=eng#p9">Isa 11:10</a></td>
     <td>
-<p>text of scripture
+<p>10 And in that day there shall be a root of Jesse, which shall stand for an ensign of the people; to it shall the Gentiles seek: and his rest shall be glorious.
 </p>
     </td>
     <td>
-<p>notes
+<p>"That day" that this scripture refers to is the millennial day, when the Lord reigns personally on the earth and all creation is at peace. No one hurts or destroys, the child plays on the hole of the asp, the lion and the lamb lie down together.
+</p>
+<p>Receiving the rest of the Lord before that day consists of receiving the capacity to imagine and believe in that future day fully, thus entering into a condition of solace and confidence.
+</p>
+    </td>
+</tr>
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/nt/heb/3.10-14,18-19?lang=eng#p9">Heb 3:10-14, 18-19</a></td>
+    <td>
+<p>10 Wherefore I was grieved with that generation, and said, They do alway err in their heart; and they have not known my ways.
+
+11 So I sware in my wrath, They shall not enter into my rest.)
+
+12 Take heed, brethren, lest there be in any of you an evil heart of unbelief, in departing from the living God.
+
+13 But exhort one another daily, while it is called To day; lest any of you be hardened through the deceitfulness of sin.
+
+14 For we are made partakers of Christ, if we hold the beginning of our confidence steadfast unto the end;
+
+18 And to whom sware he that they should not enter into his rest, but to them that believed not?
+
+19 So we see that they could not enter in because of unbelief.
+</p>
+    </td>
+    <td>
+<p>In the first part of this passage, Paul is quoting  <a href="https://www.churchofjesuschrist.org/study/scriptures/ot/ps/95.8-11?lang=eng#p7">Ps 95:8-11</a>. Then he expounds on it. 
+</p>
+<p>Unbelief and disobedience prevent us receiving God's rest. The opposite is well summarized by Paul's phrase, "hold the beginning of our confidence steadfast unto the end."
+</p>
+    </td>
+</tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/ot/ps/37.3-9?lang=eng#p2">Ps 37:3-9</a>
+    </td>
+    <td>
+<p>3 Trust in the Lord, and do good; so shalt thou dwell in the land, and verily thou shalt be fed.
+</p><p>
+4 Delight thyself also in the Lord; and he shall give thee the desires of thine heart.
+</p><p>
+5 Commit thy way unto the Lord; trust also in him; and he shall bring it to pass.
+</p><p>
+6 And he shall bring forth thy righteousness as the light, and thy judgment as the noonday.
+</p><p>
+7 Rest in the Lord, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
+</p><p>
+8 Cease from anger, and forsake wrath: fret not thyself in any wise to do evil.
+</p><p>
+9 For evildoers shall be cut off: but those that wait upon the Lord, they shall inherit the earth.
+</p>
+    </td>
+    <td>
+<p>Trust in the Lord, commit thyself, do good, be patient and wait, fret not, forsake wrath...
+</p>
+    </td>
+</tr>
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/37.34?lang=eng#p33">Alma 37:34</a>
+    </td>
+    <td>
+<p>34 Teach them to never be weary of good works, but to be meek and lowly in heart; for such shall find rest to their souls.
+</p>
+    </td>
+    <td>
+<p>Work steadily and without grandiose acclaim to do the Lord's work, and be meek and lowly. Doing so will allow us to believe in the Lord's reassurance and timetable, and help us understand that He is in charge and able to do His own work. We will then be able to rest with confidence in Him.
+</p>
+    </td>
+</tr>
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/ot/dan/12.8-10,12-13?lang=eng#p7">Dan 12:8-10, 12-13</a>
+    </td>
+    <td>
+<p>8 And I heard, but I understood not: then said I, O my Lord, what shall be the end of these things?
+</p><p>
+9 And he said, Go thy way, Daniel: for the words are closed up and sealed till the time of the end.
+</p><p>
+10 Many shall be purified, and made white, and tried; but the wicked shall do wickedly: and none of the wicked shall understand; but the wise shall understand.
+</p><p>
+12 Blessed is he that waiteth, and cometh to the thousand three hundred and five and thirty days.
+</p><p>
+13 But go thou thy way till the end be: for thou shalt rest, and stand in thy lot at the end of the days.
+</p>
+    </td>
+    <td>
+<p>Things connected to rest include waiting, being purified, being tried, having understanding, standing in thy lot, and coming.
+</p>
+    </td>
+</tr>
+<tr>
+    <td>cite2link</td>
+    <td>
+<p>7 And lest I should be exalted above measure through the abundance of the revelations, there was given to me a thorn in the flesh, the messenger of Satan to buffet me, lest I should be exalted above measure.
+</p><p>
+8 For this thing I besought the Lord thrice, that it might depart from me.
+</p><p>
+9 And he said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me.
+</p><p>
+10 Therefore I take pleasure in infirmities, in reproaches, in necessities, in persecutions, in distresses for Christ’s sake: for when I am weak, then am I strong.
+</p>
+    </td>
+    <td>
+<p>Discovering that God's grace is sufficient (and that in and of ourselves, we aren't even close to sufficient) allows us to have confidence, because the basis for our confidence changes completely.
+</p>
+<p>Notice how similar Paul's language is to the language of 
 </p>
     </td>
 </tr>
@@ -127,5 +230,6 @@ The Lord's presence is connected with receiving this rest. Moses was speaking wi
 </p>
     </td>
 </tr>
+
 
 </table>
