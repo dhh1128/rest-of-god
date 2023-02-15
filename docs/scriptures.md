@@ -219,6 +219,137 @@ The Lord's presence is connected with receiving this rest. Moses was speaking wi
 </p>
     </td>
 </tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/ot/isa/28.12?lang=eng#p11">Isa 28:12</a>
+</td>
+    <td>
+<p>12 To whom he said, This is the rest wherewith ye may cause the weary to rest; and this is the refreshing: yet they would not hear.
+</p>
+    </td>
+    <td>
+<p>This adds the idea that God's rest includes active refreshing as well. Makes me think of Isa 40:31 -- "they that wait upon the Lord shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint." Also <a href="https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/84.33?lang=eng#p32">D&C 84:33</a> -- "whoso is faithful unto the obtaining these two priesthoods of which I have spoken, and the magnifying their calling, are sanctified by the Spirit unto the renewing of their bodies."
+</p>
+    </td>
+</tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/nt/2-thes/1.4-7?lang=eng#p3">2 Thes 1:4-7</a></td>
+    <td>
+<p>4 So that we ourselves glory in you in the churches of God for your patience and faith in all your persecutions and tribulations that ye endure:
+</p><p>
+5 Which is a manifest token of the righteous judgment of God, that ye may be counted worthy of the kingdom of God, for which ye also suffer:
+</p><p>
+6 Seeing it is a righteous thing with God to recompense tribulation to them that trouble you;
+</p><p>
+7 And to you who are troubled rest with us, when the Lord Jesus shall be revealed from heaven with his mighty angels,
+</p>
+    </td>
+    <td>
+<p>Paul talks about rest being an eventual reward for those who have suffered and endured. This is a bit different from the rest that we experience as a heavenly gift here and now -- but it is worth including because what we experience now is the earnest or beginning or promise of the rest we will experience then. It puts suffering for Jesus's sake into a glorious perspective.
+</p>
+    </td>
+</tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4.8-10,14-16?lang=eng#p7">Heb 4:8-10, 14-16</a></td>
+    <td>
+<p>8 For if Jesus had given them rest, then would he not afterward have spoken of another day.
+</p><p>
+9 There remaineth therefore a rest to the people of God.
+</p><p>
+10 For he that is entered into his rest, he also hath ceased from his own works, as God did from his.
+</p><p>
+14 Seeing then that we have a great high priest, that is passed into the heavens, Jesus the Son of God, let us hold fast our profession.
+</p><p>
+15 For we have not an high priest which cannot be touched with the feeling of our infirmities; but was in all points tempted like as we are, yet without sin.
+</p><p>
+16 Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need.
+</p>
+    </td>
+    <td>
+<p>This whole chapter is an extended meditation on the Lord's promise to give rest, and His invitation to believers to enter into His rest.
+</p><p>
+A part of the rest of God is recognizing that Jesus understands us, having suffered with us -- and that we can boldly ask for consolation because He is merciful and kind.
+</p>
+<p>Verse 10 is interesting. We cease from our own works, just as God ceased from His on the first sabbath. I think this connects to the idea highlighted in ther scriptures here, that part of the rest of God is recognizing that we don't have to solve all of the world's problems. We do our part and then turn it over to Him. It is His work, and He can do it. He will do it. He doesn't expect us to carry more or run faster than we can (<a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/4.27?lang=eng#p26">Mosiah 4:27</a>).</p>
+    </td>
+</tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/nt/rev/6.9-11?lang=eng#p8">Rev 6:9-11</a></td>
+    <td>
+<p>9 And when he had opened the fifth seal, I saw under the altar the souls of them that were slain for the word of God, and for the testimony which they held:
+</p><p>
+10 And they cried with a loud voice, saying, How long, O Lord, holy and true, dost thou not judge and avenge our blood on them that dwell on the earth?
+</p><p>
+11 And white robes were given unto every one of them; and it was said unto them, that they should rest yet for a little season, until their fellowservants also and their brethren, that should be killed as they were, should be fulfilled.
+</p>
+    </td>
+    <td>
+<p>The righteous waiting in paradise are resting in a way that is not dissimilar from the kind of rest that the righteous can enjoy here in this life. They wait upon the Lord, but in the meantime, they can enjoy their clean, white robes (the peace that comes from righteousness), and they are comforted that He is in charge and His work is coming to pass as promised.
+</p>
+    </td>
+</tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/1.7?lang=eng#p6">Jacob 1:7</a></td>
+    <td>
+<p>7 Wherefore we labored diligently among our people, that we might persuade them to come unto Christ, and partake of the goodness of God, that they might enter into his rest, lest by any means he should swear in his wrath they should not enter in, as in the provocation in the days of temptation while the children of Israel were in the wilderness.
+</p>
+    </td>
+    <td>
+<p>Resting is associated with partaking of the goodness of God. It happens after we come unto Christ and partake of that goodness.
+</p>
+    </td>
+</tr>
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1.27?lang=eng#p26">Enos 1:27</a></td>
+    <td>
+<p>27 And I soon go to the place of my rest, which is with my Redeemer; for I know that in him I shall rest. And I rejoice in the day when my mortal shall put on immortality, and shall stand before him; then shall I see his face with pleasure, and he will say unto me: Come unto me, ye blessed, there is a place prepared for you in the mansions of my Father. Amen.
+</p>
+    </td>
+    <td>
+<p>Enos uses the phrase "place of rest" and defines it as being with Christ, seeing His face with pleasure. Enos has strong confidence in his future reward. Notice how similar this is to the final verse of Moroni.
+</p>
+    </td>
+</tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/10.34?lang=eng#p33">Moro 10:34</a></td>
+    <td>
+<p>34 And now I bid unto all, farewell. I soon go to rest in the paradise of God, until my spirit and body shall again reunite, and I am brought forth triumphant through the air, to meet you before the pleasing bar of the great Jehovah, the Eternal Judge of both quick and dead. Amen.
+</p>
+    </td>
+    <td>
+<p>Note similarity to Enos's final words, and note the connection to <a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40.12?lang=eng#p11">Alma 40:12</a> and <a href="https://www.churchofjesuschrist.org/study/scriptures/nt/rev/6.11?lang=eng#p10">Rev 6:11</a>. Moroni is looking forward with pleasure, to triumphing, with Jesus.
+</p>
+    </td>
+</tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/12.34?lang=eng#p33">Alma 12:34</a></td>
+    <td>
+<p>34 Therefore, whosoever repenteth, and hardeneth not his heart, he shall have claim on mercy through mine Only Begotten Son, unto a remission of his sins; and these shall enter into my rest.
+</p>
+    </td>
+    <td>
+<p>Preconditions for the rest of God: repent, harden not my heart, claim mercy unto a remission of sins.
+</p>
+    </td>
+</tr>
+
+<tr>
+    <td><a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/40.12?lang=eng#p11">Alma 40:12</a></td>
+    <td>
+<p>12 And then shall it come to pass, that the spirits of those who are righteous are received into a state of happiness, which is called paradise, a state of rest, a state of peace, where they shall rest from all their troubles and from all care, and sorrow.
+</p>
+    </td>
+    <td>
+<p>Resting from troubles, care, and sorrow is the condition of paradise in the next life. It seems that the rest we enter into in this life is the prefiguration or beginning of that state.
+</p>
+    </td>
+</tr>
 <tr>
     <td>cite2link</td>
     <td>
@@ -230,6 +361,4 @@ The Lord's presence is connected with receiving this rest. Moses was speaking wi
 </p>
     </td>
 </tr>
-
-
 </table>
